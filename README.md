@@ -1,1 +1,1 @@
-# MiamiMaket.github.io
+# MiamiGallery.github.io
